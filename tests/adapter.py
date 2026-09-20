@@ -1,0 +1,1 @@
+// adapter — crossfire cheats menu
